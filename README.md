@@ -1,4 +1,4 @@
-### Hi there 👋
+What's Gucci I'm Chukwurah Somtoo 👋
 
 - 🔭 I’m currently working on Media Streaming Web App
 - 🌱 I’m currently learning various Backend Architecture for Performance
