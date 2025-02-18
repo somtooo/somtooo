@@ -1,4 +1,4 @@
-### What's Gucci I'm Chukwurah Somtoo 👋
+### What's Gucci I'm Somtoo Chukwurah 👋
 
 
 
